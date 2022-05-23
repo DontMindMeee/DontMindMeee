@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DontMindMeee
+- 👀 I’m interested in hacking
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: 846758@dpsk12.net (GMAIL)
